@@ -1,1 +1,1 @@
-3D Models Of a BEAR and MINION
+3D Models Of a BEAR and MINION and PANDA
